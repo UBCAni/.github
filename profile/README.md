@@ -1,0 +1,1 @@
+The UBC Anime Club is a student-run organization that brings together individuals who share a passion for anime, manga, and Japanese culture. We have members from all across the lower mainland, and we host big and small events all throughout the year.
